@@ -1,8 +1,12 @@
 # achievements
 
-3. Platina - Team Award Winner (2010)  
+1. STAR Award Winner (2016)
 
-4. Principal Organizer of LFC Carnival (2019)
+2. Employee of the Month Award (2019)
+
+4. Platina - Team Award Winner (2010)  
+
+5. Principal Organizer of LFC Carnival (2019)
 
 ![LFC_Carnival_2019_Photo#1](https://github.com/AkmalBashaTimri/achievements/assets/173984646/cae88b18-453d-466a-9688-a2afc67b1bd4)
 
